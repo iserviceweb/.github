@@ -1,4 +1,4 @@
-![GitHub_Hero](https://user-images.githubusercontent.com/35927834/210692067-9c27b3d8-66df-4c9f-9a81-06e842adec4b.jpg)
+![GitHub_Hero-2](https://user-images.githubusercontent.com/35927834/210696811-a67a73e3-d8cc-4c99-806b-9c8d4ff9c779.jpg)
 
 ## Hi there 👋
 
